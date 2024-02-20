@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning **Power BI**
 
-- 📫 How to reach me **steph.gomez98@yahoo.com**
+- 📫 How to reach me **sgomezs212@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
